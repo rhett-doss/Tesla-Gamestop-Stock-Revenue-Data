@@ -1,1 +1,0 @@
-# Tesla-Gamestop-Stock-Revenue-Data
